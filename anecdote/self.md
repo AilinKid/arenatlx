@@ -1,4 +1,5 @@
-Hi~ Morgan
+Hi~ Morgan:
+
 it's so glad to be the co-worker with you and it's a nice trip that we have been through together. (you are 
 my older buddy forever beyond the free chat). At the end of this month, I apply for a tranfer from SQL team
 to Planner team since the basic development for placement rules have been done already (which means you should
@@ -11,7 +12,10 @@ To be or not to be lingers around my mind for serveral months. Maybe life is not
 also a period time of passion. I hope someday when I recall back to this, my heart is surging.
 
 Hope you can give me some advices if any.
+
 Sincerely Lingxiang
+
+----
 
 不久前的告别篇让我显得有些局促, 是的, 跟 Morgan 认识也算比较久的了. 之前的双语协会还经常跟他一起聊天. 其实一开始和老外聊天也不一
 定要清楚的知道他在说什么, 在那个语言环境下肢体表现下, 人的感性也足够你们之间的交流了. 渐渐的你会跟上一些他常用的词汇, 逐渐模拟他
